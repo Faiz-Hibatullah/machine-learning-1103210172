@@ -1,0 +1,3 @@
+TUGAS UAS MACHINE LEARNING
+
+Nama : Faiz Hibatullah Kelas : TK-45-G05 NIM : 1103210172
